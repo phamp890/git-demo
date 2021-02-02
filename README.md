@@ -9,10 +9,5 @@ fadsfasdf fasfddsaf
 fasfdd 
 ffsaf
 
-fsdafdsa
-fadsfdsaf
+inde.x
 
-
-fadsfdsafdsf
-sadfasdf
-safsa
